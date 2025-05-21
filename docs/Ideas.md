@@ -1,0 +1,1 @@
+Hacer un chatbot de que nos conteste como una Rusa, la prima de Guillermo, y una waifu. 
